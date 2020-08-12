@@ -1,1 +1,1 @@
-## Akun telah dipindahkan ke [@zaidhdev](https://github.com/zaidhdev)
+## Akun telah dipindahkan ke [@ipansubastian](https://github.com/ipansubastian)
